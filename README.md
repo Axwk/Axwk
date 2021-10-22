@@ -2,7 +2,7 @@ Quis suis-je ?
 
 Je suis Axwk.
 
-Passionné par l'informatique depluis mon jeune âge.
+Passionné par l'informatique.
 
 J'ai été l'élève de Alduelz en effet.
 
