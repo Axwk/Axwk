@@ -4,10 +4,6 @@ Je suis Axwk.
 
 Passionné par l'informatique.
 
-J'ai été l'élève de Alduelz en effet.
-
-Actuellement j'apprend avec Alphabet.
-
 Mon Discord : Axwk'SSD#1372
 
 ___________________________________________________________________________________________________________________________________________________________________________________
