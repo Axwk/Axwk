@@ -2,7 +2,7 @@ Quis suis-je ?
 
 Je suis Axwk.
 
-Passionné par l'informatique.
+Passionné par l'informatique. Et la cybersec
 
 Mon Discord : Axwk#1372
 
